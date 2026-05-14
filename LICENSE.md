@@ -1,4 +1,4 @@
-# 
+# Get the ultimate pump.fun sniper bot with new Automation for pump.fun sniper bot | multi-wallet-support & volume-spike-detection. Featuring multi-wallet-support and
 
 
 
